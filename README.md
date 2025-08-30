@@ -1,6 +1,6 @@
 # 👩‍💻 Juciara E. Conceição  
 
-Bem-vindo(a) ao meu repositório de currículo! 🚀  
+Bem-vindo(a) ao meu repositório de currículo e certificados! 🚀  
 
 Aqui você pode acessar meu currículo atualizado em PDF.  
 
